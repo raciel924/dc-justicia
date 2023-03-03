@@ -1,3 +1,0 @@
-# historia de flash
-
-sdf
